@@ -1,0 +1,2 @@
+# infomuminov
+InfoMuminovUz
